@@ -5,7 +5,8 @@
 #### 最近域名较被墙的比较多，请访问我们的新域名
 #### 点击下方链接即可访问花社区主页
 
-* [https://my91lf.org](https://my91lf.org)
+* [https://91lf.live](https://91lf.live)
+* [https://91lf.bio](https://91lf.bio)
 
 
 
